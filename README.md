@@ -1,8 +1,6 @@
-## [STRAW.PAGE](https://cdol9hin.straw.page)      .     RENTRY WIP       .      MATCHING RENTRY WIP
+# Find more about me by talking! 
 
-ASK 4 DISCORD  . ART COMMISSIONS NOT OPEN . LOOKING FOR FRIENDS
+　　im a minor　　,　　ok with c+h　　,　　intp
 
-INFUSE SMP  .  LIFESTEAL SMP  .  MACE SMP . UNSTABLE SMP
-
-
-       DOL9HIN    WEMMBU    MANEPEAR   WILLERHIDE   SOSOSHAUN
+  
+  I dont bite 　,　　I assure you ^_^　　.　　neurodivergent
